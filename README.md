@@ -1,0 +1,2 @@
+- 👋 Ciao, sono @Kiidris
+- 🌱 Sto frequentando il secondo anno delle superiori, indirizzo informatica e telecomunicazioni
